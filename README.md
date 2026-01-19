@@ -1,0 +1,1 @@
+# AllWays_Care_SmartPhone
